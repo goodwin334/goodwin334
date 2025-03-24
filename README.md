@@ -12,3 +12,4 @@ I am currently open to participating in outsourcing projects to get better at my
 
 
 LinkedIn: https://www.linkedin.com/in/gabe-goodwin/
+GitHub: https://github.com/goodwin334
