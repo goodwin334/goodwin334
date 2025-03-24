@@ -8,7 +8,7 @@ I'm actively looking to transition into roles in data analysis, quantitative res
 
 My hobbies include working out, reading, sports (specifically football and basketball) and traveling.  I also enjoy educational podcasts that provide me the opportunity to learn in my free time.
 
-I am currently open to participating in outsourcing projects to get better at my coding skill.s
+I am currently open to participating in outsourcing projects to get better at my coding skills.
 
 
 LinkedIn: https://www.linkedin.com/in/gabe-goodwin/
