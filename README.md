@@ -7,3 +7,8 @@ Recently, I completed an intensive Data Science program through TripleTen, where
 I'm actively looking to transition into roles in data analysis, quantitative research, or data engineering—where I can merge my financial expertise with technical proficiency to derive insights, build models, and solve real-world problems with data.
 
 My hobbies include working out, reading, sports (specifically football and basketball) and traveling.  I also enjoy educational podcasts that provide me the opportunity to learn in my free time.
+
+I am currently open to participating in outsourcing projects to get better at my coding skill.s
+
+
+LinkedIn: https://www.linkedin.com/in/gabe-goodwin/
